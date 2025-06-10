@@ -33,4 +33,6 @@ Feel free to reach out or connect:
 Taranpal Singh
 **GitHub**: [TaranpalS](https://github.com/TaranpalS)
 
+**LinkedIn**: [Taranpal Singh](https://in.linkedin.com/in/taranpalsinghh)
+
 ---
